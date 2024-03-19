@@ -1,1 +1,1 @@
-rizkiyuwanda-profil
+rizkiyuwanda-profile
